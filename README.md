@@ -4,4 +4,5 @@
 -CSS
 # Ekran görüntüsü
 
-![ezgif-1fa34556df423 mp4-poster](https://github.com/user-attachments/assets/cb6b99e3-aeed-487e-8cd4-dedcccf3f6e0)
+![caffee espresso gif](https://github.com/user-attachments/assets/bd59ab31-6a84-4dd6-9856-f70113b334b8)
+
